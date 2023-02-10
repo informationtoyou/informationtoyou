@@ -2,7 +2,7 @@
 - 👀 I’m interested in YouTube, Programming, Entrepreunership, Gaming, Geography and more!
 - 🌱 I’m currently learning lots of things!
 - 💞️ I’m looking to collaborate on cool epic pro stuff!
-- 📫 How to reach me: Follow on Roblox. http://gg.gg/robloxprofile
+- 📫 How to reach me: Follow on Roblox. http://gg.gg/robloxprofile or DM me on Twitter (@Infoflexy_YT), maybe on Stack Overflow (@Infoflexy)
 
 <!---
 informationtoyou/informationtoyou is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
